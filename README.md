@@ -2,8 +2,11 @@ i bin da hoetze
 und i schreib python obwois oasch is🥰
 
 assembly is scheisse owa i mogs trotzdem
+
 c is supa
+
 c++ is c nur onas
+
 und c# is gay
 
 <!---
